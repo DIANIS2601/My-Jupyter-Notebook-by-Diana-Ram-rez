@@ -1,1 +1,0 @@
-# My-Jupyter-Notebook-by-Diana-Ram-rez
